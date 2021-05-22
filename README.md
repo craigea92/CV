@@ -17,7 +17,7 @@ _Digital Marketing Manager_
 - Key Achievements
 1. Increased revenue for hair care products by 40%
 2. Improved the UK sites' overall conversion rate by 0.28%
-3. Delivered a succesful project from an idea to a fully-fledged integrated system
+3. Delivered a successful project from an idea to a fully-fledged integrated system
 
 - Duties
 1. Collating data into dashboards to track the marketing & sales performance of all customer digital touch-points
